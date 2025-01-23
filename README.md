@@ -1,1 +1,1 @@
- - 1st Year Conputer Science Student
+ - 1st Year Computer Science Student
